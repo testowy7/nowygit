@@ -1,0 +1,1 @@
+# nowy wpis dla konta @ gmail.com
